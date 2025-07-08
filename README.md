@@ -10,4 +10,4 @@
 
 每日精心整理最新热门影视资源，平台保障内容更新及时且多样。无论是喜欢无码还是带字幕的高清影片，这里都能轻松找到。资源涵盖多种类型，从剧情片到角色扮演应有尽有。免注册，纯净浏览，带来最佳的观看体验。还有丰富的专题和推荐内容，助您发现更多高品质作品，提升观看乐趣。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/fkt20250807/fkt3 ）</span>
